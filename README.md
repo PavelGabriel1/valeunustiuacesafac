@@ -1,2 +1,2 @@
 # valeunustiuacesafac
-buna seaa barosane
+buna seara barosane
